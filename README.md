@@ -1,0 +1,2 @@
+# lerqr
+ler qrd
